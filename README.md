@@ -1,4 +1,4 @@
 <br> my name is butters stotch </br>
-i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i am gross and offputting
-i don't hide people but i hate on them in party chat 
-LLM 🕊️ he died of ballfart
+<br>i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i have schizophrenia i am gross and offputting</br>
+<br>i don't hide people but i hate on them in party chat</br>
+<br>LLM 🕊️ he died of ballfart</br>
